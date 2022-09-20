@@ -1,4 +1,4 @@
-# [Név]
+# [Kállai Gábor]
 
 ## Hogyan kezdj neki?
 
